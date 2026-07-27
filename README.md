@@ -1,6 +1,7 @@
 # SaathEra
 
 **Meet intentionally. Focus mutually. Grow privately.**
+Fewer People Better Reason When you both choose each other -- We Stop The Search
 
 Verified relationship journey platform for India — curated discovery, safe meetings, mutual Focus Mode, enforced Together Mode, and a private couple space.
 
